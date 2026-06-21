@@ -1,0 +1,4 @@
+Name Aiza Nabiha  
+Enrollment 01401012025
+IGDTUW DELHI 
+WEEK 3 ASSIGNMENT 1 
